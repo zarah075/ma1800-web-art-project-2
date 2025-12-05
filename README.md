@@ -15,29 +15,29 @@ b. My project idea was centred around creating an informative piece of media abo
    d. With more time and resources, I would likely have fixed my CSS, hence allowing me to have better formatting in my last few pages. I would also add more pages of information and images, and with the ability to undrstand HTML more than I currently do, I would try my hand at animations and gifs and creating a user experience more similar to what is achieved by Jodi Heemskerk's work.
 
    e. ASSET LIST-
-       https://www.instagram.com/p/DRNcm6gCG2J/?img_index=1&igsh=MW15cjJ3cmJxemQydg==
+    https://www.instagram.com/p/DRNcm6gCG2J/?img_index=1&igsh=MW15cjJ3cmJxemQydg==
 
-       https://www.instagram.com/p/DRUH_gXCBul/?igsh=eWgyazV2aHJteTBx
+    https://www.instagram.com/p/DRUH_gXCBul/?igsh=eWgyazV2aHJteTBx
 
-       https://www.instagram.com/p/DRWg6ifDCw0/?igsh=ZjBjNXQ5dzJhaGls
+    https://www.instagram.com/p/DRWg6ifDCw0/?igsh=ZjBjNXQ5dzJhaGls
 
-       https://www.britannica.com/place/Nigeria
+    https://www.britannica.com/place/Nigeria
 
-        https://www.britannica.com/place/Nigeria
+    https://www.britannica.com/place/Nigeria
 
-        https://www.istockphoto.com/photos/nigerian-dancers-photos
+    https://www.istockphoto.com/photos/nigerian-dancers-photos
 
-        https://www.freepik.com/free-photos-vectors/glitchy-dark-art/2
+    https://www.freepik.com/free-photos-vectors/glitchy-dark-art/2
 
-        https://www.facebook.com/AdeolaFayehun/posts/this-is-the-new-nigerian-flag-stained-with-the-blood-of-young-people-who-dared-t/4103665156316736/
+    https://www.facebook.com/AdeolaFayehun/posts/this-is-the-new-nigerian-flag-stained-with-the-blood-of-young-people-who-dared-t/4103665156316736/
 
-        https://www.youtube.com/watch?v=mavW0-7aa2Y
+    https://www.youtube.com/watch?v=mavW0-7aa2Y
 
-        https://africacenter.org/spotlight/en-2025-mig-10-year/
+    https://africacenter.org/spotlight/en-2025-mig-10-year/
 
-        https://open.substack.com/pub/rationaldisseminates/p/even-help-from-an-alien-invasion?r=5axct0&utm_campaign=post&utm_medium=web&showWelcomeOnShare=false 
+    https://open.substack.com/pub/rationaldisseminates/p/even-help-from-an-alien-invasion?r=5axct0&utm_campaign=post&utm_medium=web&showWelcomeOnShare=false 
 
-        https://www.instagram.com/reel/DPfMyjmCBpA/?igsh=MWZsdzZubHoxYnZ3NQ==
+    https://www.instagram.com/reel/DPfMyjmCBpA/?igsh=MWZsdzZubHoxYnZ3NQ==
 
-        https://www.instagram.com/p/DRXTPLAjDcp/?igsh=NnF5aHJ0ajh5cG4x
+    https://www.instagram.com/p/DRXTPLAjDcp/?igsh=NnF5aHJ0ajh5cG4x
    
